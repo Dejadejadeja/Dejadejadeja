@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Dejadejadeja
 - 👀 I’m interested in coding
-- 🌱 I’m currently learning software engineering in paragon interantional school
+- 🌱 I’m currently learning software engineering in paragon international University 
 - 💞️ I’m looking to collaborate on Doctor gurl
 - 📫 How to reach me with honest and ability 
 - 😄 Pronouns: He
